@@ -1,1 +1,0 @@
-A modern online streetwear store that began its journey in 2024 in Moscow, a couple of students decided to open their own brand, prepared the goods and began to sell, their customers found the clothes, soon they decided to create their own website for this.
